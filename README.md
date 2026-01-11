@@ -1,1 +1,1 @@
-# SCRIPT
+you get exortied to the nether roof but theres 1 thing you got 1 pickaxe and a "SUPER RARE" nether ack spawns and you got a ender chest those are your 2 only items you open your ender chest you got ender pearls you get out and get ur armor and tools and try killing me
